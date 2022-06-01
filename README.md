@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @itsevanrobinson
+- 👀 I’m interested in emerging tech and it's intersection with traditional Finance 
+- 📫 How to reach me on twitter @itsevanrobinson
